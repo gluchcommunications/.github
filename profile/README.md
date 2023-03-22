@@ -1,5 +1,4 @@
-# GLUCH Communications
-
+![alt text](https://www.gluch.de/wp-content/uploads/2023/03/headline.png)
 GLUCH Communications stands for ahead of change. <br> <br>
 Through our in-house research and development laboratories, we conduct early-stage analysis of new technologies, either independently or in collaboration with various manufacturers. With the benefit of our extensive experience gained from numerous national and global projects, we are able to constantly remain ahead of the curve.
 <br>
